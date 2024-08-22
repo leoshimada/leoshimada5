@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 📚
+## Sejam bem vindos 🎌
 
 Meu nome é: Leonardo Shimada Pereira
 
@@ -9,3 +9,7 @@ Meu nome é: Leonardo Shimada Pereira
   ### Você pode entrar em contato comigo 📫
   leoshimada@gmail.com
   @leoshimada2
+
+![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif
+)
+  
